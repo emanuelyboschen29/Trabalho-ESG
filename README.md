@@ -1,0 +1,2 @@
+Professora, estou com um problema de armazenamento cheio no meu email da faculdade, estou fazendo o possivel para regularizar, mas até conseguir transferir os arquivos que estão pesando, o classroom não me deixa enviar PDF ou qualquer outro arquivo
+Ele deixou enviar link, por isso coloquei o trabalho por aqui, não se se a senhora aceita desse formato, mas peço por gentileza que se for possivel, considerar meu trabalho entregue dessa forma
